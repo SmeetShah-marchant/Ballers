@@ -54,4 +54,4 @@ JIMMY BUTLER DELIVERS! The Miami heat win it at the end on a thriller what a gam
 
 Image via Hot Hot hoops
 
-Credits to basketball-reference.com for information for the statistics of each game.
+Credits to https://www.basketball-reference.com/ for information for the statistics of each game. Check them out for more info and analytics on the Nba Finals. They also provide stats on every game that has been ever recorded and advanced statistics on every player to play since recording data has started in the nba.
