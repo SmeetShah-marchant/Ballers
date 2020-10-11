@@ -54,4 +54,4 @@ JIMMY BUTLER DELIVERS! The Miami heat win it at the end on a thriller what a gam
 
 Image via Hot Hot hoops
 
-Credits to basketball-reference.com for information on the statistics of each game.
+Credits to basketball-reference.com for information for the statistics of each game.
