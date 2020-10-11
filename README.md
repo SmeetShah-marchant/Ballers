@@ -12,6 +12,8 @@ The Lakers win game one in a dominant performace, Anthony Davis led the way wiht
 
 ![postgame-200930-main](https://user-images.githubusercontent.com/72675255/95669680-1991ed00-0b38-11eb-8ea2-3651cf55ffbe.jpg) 
 
+Image via nba.com
+
 # Game 2
 
 Score: Lakers 124-114 Heat. (Lakers lead 2-0)
@@ -19,6 +21,8 @@ Score: Lakers 124-114 Heat. (Lakers lead 2-0)
 The Lakers take game two in another great performance to take a leading command in this series. LeBron James played another great game scoring 33 points, 9 assists and 9 rebounds along with Anthony Davis who scored 32 points and 14 rebounds. The Heat improved their three point shooting in this game along with their rebounding but it was not enough. The Heat were lead by Jimmy Butler who scored 25 points, 13 assists and 8 rebounds with help from Kelly Olynyk who scored 24 points and 9 rebounds. With injuries to two key players for the heat the title hopes are slowly diminishing for the Heat. Bam Adebayo and Goran Dragic still look to be questionable for Game 3 which is a must win game for the Heat if they want to change the tide of this series. Though winning game 3 doesn't give the Lakers the championship, the Heat have to win 4 games in a row which is impossible statistically. In order to win the young shooters need to tune in for the Heat, especially Duncan Robison, Herro scored 17 points but Duncan only scored 9 points shooting 2/7. The Heat shooters need to play a huge role in this series if they want to win the title. They also need to control the rebounds, though it was closer this game they let the Lakers gain 16 offensive rebounds which just leads to 2nd chance points. As the momentum is on the side of the Lakers the Heat need a big win to get back in this series with or without Dragic and Adebayo.
 
 ![download (1)](https://user-images.githubusercontent.com/72675255/95670777-75627300-0b44-11eb-8407-d982ffd7e7d8.jpg)
+
+Image via La Times
 
 # Game 3 
 
@@ -28,6 +32,8 @@ What a GAME! Jimmy Butler lifts the Heat to keep their title hopes alive. Jimmy 
 
 ![download (2)](https://user-images.githubusercontent.com/72675255/95670779-7c898100-0b44-11eb-9826-c18cc74a21c8.jpg)
 
+Image via La Times
+
 # Game 4
 
 Score: Lakers 102-96 Heat. (Lakers lead 3-1)
@@ -36,6 +42,8 @@ Lakers win it in a close game. This game was similar to Game 3 with few adjustme
 
 ![anthonydavis100620](https://user-images.githubusercontent.com/72675255/95687304-89938800-0bb7-11eb-93f4-b16d44161ff2.jpg)
 
+Image via CBS Sports
+
 # Game 5 
 
 Score: Lakers 111-108 Heat. (Lakers lead 3-2)
@@ -43,3 +51,7 @@ Score: Lakers 111-108 Heat. (Lakers lead 3-2)
 JIMMY BUTLER DELIVERS! The Miami heat win it at the end on a thriller what a game. A disappointing loss for the Lakers as the right plays were might at the end of the game but the shots just couldn't go in. Jimmy Butler scored 35 points, 11 assists, 12 rebounds playing all game but 47 seconds with huge help from the rookie Duncan Robinson who had 26 points. Duncan Robinson has improved every game in scoring and it is scarry that he is just a rookie. For the Lakers LeBron put out a monsterous statline with 40 points, 7 assistss and 13 rebounds in which he shot 6/9 from beyond the three-point line. This was duel between Lebron and Butler through out the whole game as they scored baskets back and forth especially late game to win it fo their team was a legendary performace. But this was a heart breaking loss for the Lakers as the right play was made at the end of the game. With about 16 seconds left on the clock Lebron drove to the basket where he was triple-teamed. He passed the ball to an open Danny Green at the top of the key who just missed it. The play didn't end there as the Lakers could have still won it as Morris got the offensive rebound but overpassed it Anthony Davis who wasn't open making it a turnover via out of bounds and Heat ball. If Morris had passed the ball to LeBron who was open for a three on the right wing or Danny Green behind him who was also open the shot if made might have sealed the series shut and gave the Lakers the championship. The heat played an amazing game showing a lot of heart, with the momentum riding for the Heat this is going to be an interesting game 6 in which if the Heat win will certanly put pressure on the Lakers.
 
 ![1279429367 jpg 0](https://user-images.githubusercontent.com/72675255/95687971-9ca85700-0bbb-11eb-8fda-e2a0981487b1.jpg)
+
+Image via Hot Hot hoops
+
+Credits to basketball-reference.com for information on the statistics of each game.
