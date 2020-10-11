@@ -14,4 +14,4 @@ The Lakers win game one in a dominant performace, Anthony Davis led the way wiht
 
 Score: Lakers 124-114 Heat. 
 
-The Lakers take game two in another great performance to take a leading command in this series. LeBron James played another great game scoring 
+The Lakers take game two in another great performance to take a leading command in this series. LeBron James played another great game scoring 33 points, 9 assists and 9 rebounds along with Anthony Davis who scored 32 points and 14 rebounds. 
