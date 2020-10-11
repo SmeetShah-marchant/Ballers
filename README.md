@@ -8,6 +8,7 @@ This page was created to have full coverage of the NBA 2020 Finals between the L
 Score: Lakers 118-96 Heat. 
 
 The Lakers win game one in a dominant performace, Anthony Davis led the way wiht 34 points, 9 rebounds and 5 assists wiht LeBron following him scoring 25 points, 13 rebounds and 9 assists on a near triple-double. The Lakers shot a 45.2% from the field and 39.5% from beyond the three-point line. The Heat take a hard loss in game one with Jimmy Butler scoring 23 points, 5 assists and 2 rebounds. The main take-away from this game was that the Lakers controlled the rebounding game the entire time with two 7 footers on the court in Anthony Davis and Dwight Howard. The Heat's shooters also did not deliver this game as they shot only 31.4% from beyond the arc which included one of the main shooters for Maimi Duncan Robinson only shooting three shots all from beyond the arc and making none. He scored 0 points this game. If the Heat want to keep their championship hopes alve they need their shooters to deliver. They also need to control the rebouning game as the Lakers had 54 rebounds compared to the 36 rebounds from the Heat.
+![postgame-200930-main](https://user-images.githubusercontent.com/72675255/95669680-1991ed00-0b38-11eb-8ea2-3651cf55ffbe.jpg) 
 
 # Game 2
 
