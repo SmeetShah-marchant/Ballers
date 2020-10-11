@@ -5,14 +5,20 @@ This page was created to have full coverage of the NBA 2020 Finals between the L
 
 # Game 1 
 
-Score: Lakers 118-96 Heat. 
+Score: Lakers 118-96 Heat. (Lakers lead 1-0)
 
 The Lakers win game one in a dominant performace, Anthony Davis led the way wiht 34 points, 9 rebounds and 5 assists wiht LeBron following him scoring 25 points, 13 rebounds and 9 assists on a near triple-double. The Lakers shot a 45.2% from the field and 39.5% from beyond the three-point line. The Heat take a hard loss in game one with Jimmy Butler scoring 23 points, 5 assists and 2 rebounds. The main take-away from this game was that the Lakers controlled the rebounding game the entire time with two 7 footers on the court in Anthony Davis and Dwight Howard. The Heat's shooters also did not deliver this game as they shot only 31.4% from beyond the arc which included one of the main shooters for Maimi Duncan Robinson only shooting three shots all from beyond the arc and making none. He scored 0 points this game. If the Heat want to keep their championship hopes alve they need their shooters to deliver. They also need to control the rebouning game as the Lakers had 54 rebounds compared to the 36 rebounds from the Heat. With injuries to their bigman Bam Adebayo who has been the best player for the Heat these playoffs along with the injury to their highest scoring player Goran Dragic this series gives the Lakers a huge edge over the Heat.
 ![postgame-200930-main](https://user-images.githubusercontent.com/72675255/95669680-1991ed00-0b38-11eb-8ea2-3651cf55ffbe.jpg) 
 
 # Game 2
 
-Score: Lakers 124-114 Heat. 
+Score: Lakers 124-114 Heat. (Lakers lead 2-0)
 
 The Lakers take game two in another great performance to take a leading command in this series. LeBron James played another great game scoring 33 points, 9 assists and 9 rebounds along with Anthony Davis who scored 32 points and 14 rebounds. The Heat improved their three point shooting in this game along with their rebounding but it was not enough. The Heat were lead by Jimmy Butler who scored 25 points, 13 assists and 8 rebounds with help from Kelly Olynyk who scored 24 points and 9 rebounds. With injuries to two key players for the heat the title hopes are slowly diminishing for the Heat. Bam Adebayo and Goran Dragic still look to be questionable for Game 3 which is a must win game for the Heat if they want to change the tide of this series. Though winning game 3 doesn't give the Lakers the championship, the Heat have to win 4 games in a row which is impossible statistically. In order to win the young shooters need to tune in for the Heat, especially Duncan Robison, Herro scored 17 points but Duncan only scored 9 points shooting 2/7. The Heat shooters need to play a huge role in this series if they want to win the title. They also need to control the rebounds, though it was closer this game they let the Lakers gain 16 offensive rebounds which just leads to 2nd chance points. As the momentum is on the side of the Lakers the Heat need a big win to get back in this series with or without Dragic and Adebayo.
+![download](https://user-images.githubusercontent.com/72675255/95670352-bfe0f100-0b3e-11eb-939e-d17a3f66c3f4.jpg)
 
+# Game 3 
+
+Score: Lakers 104-115 Heat. (Lakers lead 2-1)
+
+What a GAME! Jimmy Butler lifts the Heat to keep their title hopes alive. Jimmy Butler delivers a monsterous 40 points, 13 assists, 11 rebounds with help from Tyler Herro and Kelly Olynyk who each scored 17 points respectfully. On the other side for the Lakers LeBron scored 25 points, 8 assists and 10 rebounds with a dissapointing performace from Anthony Davis who scored only 15 points of 9 field goal attempts. Things are looking up for the Heat as they get a cructial game 3 win without 2 of their key players, this might change the tide of the series giving the Heat enough confidence to upset the Lakers. Duncan Robinson is slowly improving as he scored 13 points, but if the Heat want to win they need more from him. They also need to control the rebounding game it was much closer but the Lakers still had 11 offensive rebounds compared to only two from the Heat. However for the Lakers to win Game 4 they need Anthony Davis to be much more aggressive. Only 9 field goal attempts is a disgrace for the All-Star. He needs to dominate in this series especially with the Heat's big injured. Kyle Kuzma and Morris played well for the Lakers as each scored 19 points respectfully, but Anthony Davis as the second All-Star and second option on this team needs to score at least 25 points if the Lakers want to win. 
